@@ -91,3 +91,63 @@ src="https://files.catbox.moe/gld2vo.jpg?"/>
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=blue&lines=𝗗𝗘𝗣𝗟𝗢𝗬+⤵️+𝗢𝗡+🛰️)](https://git.io/typing-svg)
 
  src='https://img.shields.io/badge/-Create-purple?style=for-the-badge&logo=heroku&logoColor=white'/></a>
+
+</a>
+</p>
+
+<a><img src='https://i.imgur.com/LyHic3i.gif'/>
+
+**Now Deploy to any hosting of ur choice**
+
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=blue&lines=𝗗𝗘𝗣𝗟𝗢𝗬+⤵️+𝗢𝗡+🛰️)](https://git.io/typing-svg)
+
+<a><img src='https://i.imgur.com/LyHic3i.gif'/>
+
+ **❖ FOR SUPPORT ❖**
+ 
+<details>
+<a><img src='https://i.imgur.com/LyHic3i.gif'/>
+
+<a href="https://whatsapp.com/channel/0029Vb8n2cA9mrGioPDAcJ1W"><img src="https://img.shields.io/badge/%F0%9F%8E%89%20ᴊᴏɪɴ%20ᴏᴜʀ%20ᴡʜᴀᴛsᴀᴘᴘ%20ᴄʜᴀɴɴᴇʟ-red" alt="🔰 ᴊᴏɪɴ ᴍʏ ᴡʜᴀᴛsᴀᴘᴘ ɢʀᴏᴜᴘ ғᴏʀ ᴜᴘᴅᴀᴛᴇ 🔰" width="300"></a>
+
+
+<a><img src='https://i.imgur.com/LyHic3i.gif'/>
+
+<a href="https://www.youtube.com/@EXDEVILGAMING-FF"><img src="https://img.shields.io/badge/%F0%9F%8E%89%20ᴊᴏɪɴ%20ᴏᴜʀ%20ʏᴏᴜᴛᴜʙᴇ%20ᴄʜᴀɴɴᴇʟ-blue" alt="🔰 ᴊᴏɪɴ ᴍʏ ʏᴏᴜᴛᴜʙᴇ ғᴏʀ ᴜᴘᴅᴀᴛᴇ 🔰" width="300"></a>
+
+</details>
+
+<a><img src='https://i.imgur.com/LyHic3i.gif'/>
+
+<h2 align="left">𝗡𝗢𝗧𝗜𝗖𝗘</h2>
+<p style="text-align: center; font-size: 1.2em;">
+  <strong>NB 🚫</strong><br>
+   
+_ᵗʰⁱˢ ⁱˢ ᵗʰᵉ ʳᵉˢᵘˡᵗ ᵒᶠ ᵐʸ  ʰᵃʳᵈ ʷᵒʳᵏ ᵃⁿᵈ ⁱ ᵐᵃˡᵛⁱⁿ ᵏⁱⁿᵍ  ᵒʷⁿˢ ᵗʰᵉ ᵇᵒᵗˢ ʳⁱᵍʰᵗˢ ᵃⁿᵈ ᶜᵒᵈᵉ ʳⁱᵍʰᵗˢ. ᵗʰᵉʳᵉᶠᵒʳᵉ, ʸᵒᵘ ʰᵃᵛᵉ ⁿᵒ ᶜʰᵃⁿᶜᵉ ᵗᵒ ᶜʰᵃⁿᵍᵉ ᵃⁿᵈ ˢᵘᵇᵐⁱᵗ ᵐʸ ᵇᵒᵗ ᵘⁿᵈᵉʳ ᵃⁿʸ ᶜⁱʳᶜᵘᵐˢᵗᵃⁿᶜᵉˢ._
+</p>
+    
+<a><img src='https://i.imgur.com/LyHic3i.gif'/>
+</div>
+
+</p> <p align="center">
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Rubik+Dirt&size=65&pause=1000&color=F29C75F&background=FF20A500&center=true&vCenter=true&width=1000&height=150&lines=THANK+YOU;FOR+USING+ZEROX-MD" alt="Typing SVG" /></a>
+<a><img src='https://i.imgur.com/LyHic3i.gif'/>
+
+***`WARNING` : `𝘋𝘖𝘕'𝘛 𝘔𝘖𝘋𝘐𝘍𝘠 𝘛𝘏𝘐𝘚 𝘉𝘖𝘛 𝘍𝘐𝘙𝘚𝘛 𝘐𝘕𝘍𝘖𝘙𝘔 ME`***
+
+<p align="center">
+  <a href="https://wa.me/+94740952053?text=*ʜɪɪ+ᴢᴇʀᴏx--+ɪ+ɴᴇᴇᴅ+ʜᴇʟᴘ!.+ɪ+ᴍᴇssᴀɢᴇᴅ+ʏᴏᴜ+ғʀᴏᴍ+ᴢᴇʀᴏx-ᴍᴅ+ʀᴇᴘᴏ!!.+ɪᴀᴍ+ᴀsᴋɪɴɢ+ғᴏʀ+ᴘᴇʀᴍɪssɪᴏɴ+ᴛᴏ+ᴄʟᴏɴᴇ+ʏᴏᴜʀ+ʙᴏᴛ+ɪ+ᴡɪʟʟ+ɢɪᴠᴇ+ᴘʀᴏᴘᴇʀ+ᴄʀᴇᴅɪᴛ!!*" target="_blank">
+    <img alt="whatsapp" src="https://img.shields.io/badge/ Whatsapp -green?style=for-the-badge&logo=whatsapp&logoColor=white" />
+<br>
+
+<a><img src='https://i.imgur.com/LyHic3i.gif'/>
+
+## Feedback
+If you have any feedback, please reach out to us at chutyputha01@gmail.com
+
+
+<a><img src='https://i.imgur.com/LyHic3i.gif'/>
+ 
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&width=435&lines=No+Love+No+Stress+for+Now🤪" alt="Typing SVG" /></a>
+
+<a><img src='https://i.imgur.com/LyHic3i.gif'/>
