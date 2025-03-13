@@ -52,14 +52,7 @@
   <p align="center">
 <a href="https://github.com/Nadilhansaja/ZEROX-A8/fork" target="blank"><img align="center" src="https://i.imgur.com/cxaSEWe.png" alt="Deploy bot" height="112" width="310" /></a>
   <div>
-      
-<div>
-<img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
-
-<a href="https://replit.com/@Nadilhansaja/WEB-PAIR-1"><img src="https://img.shields.io/badge/LOGIN%20WITH-PAIR%20CODE-black" alt="LOGIN WITH PAIR CODE" width="250"></a>
-
-<img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
-
+    
 
 <img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
 
@@ -93,7 +86,7 @@
 
    <a href="https://raw.githubusercontent.com/Nadilhansaja/Hello/refs/heads/main/IMG-20250223-WA0019.jpg"><img src="" width=80 height=80></a>   
 
-|**[`Nadil Hansaja`](https://github.com/mwknadil/乙EROX-MD/)*https://raw.githubusercontent.com/mwknadil/Ggg/refs/heads/main/IMG-20250223-WA0019.jpg?token=GHSAT0AAAAAADAMX5RK57XQ2FVEZZH3VDHSZ6SNTUA*|
+|**[`Nadil Hansaja`](https://github.com/mwknadil/乙EROX-MD/)*https://raw.githubusercontent.com/mwknadil/Ggg/refs/heads/main/IMG-20250223-WA0019.jpg?**token=GHSAT0AAAAAADAMX5RK57XQ2FVEZZH3VDHSZ6SNTUA*|
 
 
 
