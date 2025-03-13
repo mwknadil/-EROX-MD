@@ -1,3 +1,7 @@
+<h2> N O T E - B E F O R E - U S I N G !! -SI</h2>
+<ul>
+    <li>🔹 </code>Fork</code> / Use This </code>Template</code> button එක Click කරන්න.</li>
+</ul>
 </a>
 <img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
  
