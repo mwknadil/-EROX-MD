@@ -86,14 +86,6 @@ src="https://files.catbox.moe/gld2vo.jpg?"/>
 
 <a><img src='https://i.imgur.com/LyHic3i.gif'/>
 
-**Now Deploy to any hosting of ur choice**
-
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=blue&lines=𝗗𝗘𝗣𝗟𝗢𝗬+⤵️+𝗢𝗡+🛰️)](https://git.io/typing-svg)
-
- src='https://img.shields.io/badge/-Create-purple?style=for-the-badge&logo=heroku&logoColor=white'/></a>
-
-</a>
-</p>
 
 <a><img src='https://i.imgur.com/LyHic3i.gif'/>
 
