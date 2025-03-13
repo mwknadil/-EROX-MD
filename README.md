@@ -86,9 +86,6 @@
 
    <a href="https://raw.githubusercontent.com/Nadilhansaja/Hello/refs/heads/main/IMG-20250223-WA0019.jpg"><img src="" width=80 height=80></a>   
 
-|**[`Nadil Hansaja`](https://github.com/mwknadil/乙EROX-MD/)*https://raw.githubusercontent.com/mwknadil/Ggg/refs/heads/main/IMG-20250223-WA0019.jpg?**token=GHSAT0AAAAAADAMX5RK57XQ2FVEZZH3VDHSZ6SNTUA*|
-
-
 
 
  </a>
