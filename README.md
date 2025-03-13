@@ -1,143 +1,93 @@
-#  🐼🍓-乙𝐄𝐑𝐎𝐗 𝐌𝐃-🐼🍓
-🐼🍓-乙𝐄𝐑𝐎𝐗 𝐌𝐃-🐼❤️‍🩹 WHATSAPP USER BOT CREATED BY MR NADIL OFC```
+<a><img src='https://i.imgur.com/LyHic3i.gif'/>
 
-<div align="center">
-    <b>ZEROX-MD USER BOT</b>
+> **`Updated To` Version 2.3.1...**
 
+<a><img src='https://i.imgur.com/LyHic3i.gif'/>
 
-<div align="left">
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Rubik+Dirt&size=65&pause=1000&color=F72C3F&background=FF20A500&center=true&vCenter=true&width=1000&height=150&lines=ZEROX+MD;CREATED+BY+ZEROX_MIND;NADIL+HANSAJA" alt="Typing SVG" /></a>   
-</p> 
-
-<img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
-   <p align="center">
-<a href="https://github.com/Nadilhansaja/ZEROX-A8/tree/main?tab=readme-ov-file">
-    <img src="https://raw.githubusercontent.com/Nadilhansaja/Hello/refs/heads/main/avatars-000039043321-fkdub2-t1080x1080.jpg" width="700px">
-  </a>
-<img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
-
-`🐼🍓-乙𝐄𝐑𝐎𝐗 𝐌𝐃-🐼❤️‍🩹-MD` 
-
-       🐼🍓-乙𝐄𝐑𝐎𝐗 𝐌𝐃-🐼❤️‍🩹 යනු ඔබට පහසුවෙන් හැසිරවිය හැකි Bot වරයෙකි.
-
-<img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
-
-<p align="center">
-
-  [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=FFFF00&lines=If+you+think+this+bot+is+not+good;deploy+another+bot+you+like;If+you+become+Question+about+bot;join+our+Whatsapp+support+group;to+solve+it+♥️)](https://git.io/typing-svg)
-    
-  <a aria-label="WhatsApp Supported Channel" href="https://whatsapp.com/channel/0029Vb8n2cA9mrGioPDAcJ1W" target="_blank">
-    <img alt="whatsapp" src="https://img.shields.io/badge/Join Channel-25D366?style=for-the-badge&logo=whatsapp&logoColor=white" />
-</a>
-<img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
- 
-<p align="center">
-    <a href="https://github.com/NADIL-HANSAJA">
-        <img title="Author" src="https://img.shields.io/badge/AUTHOR-Nadil%20Hansaja-red.svg?style=for-the-badge&logo=github">
-    </a>
-</p>
-
-<hr>
-
-<p align="center">
-    <img src="https://img.shields.io/badge/Maintaned%3F-Actively%20Developed-blue?style=flat-square" alt="Maintained?">
-</p>
-
-<hr>       
-
-<img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
-
-<p align="center">
-  </a>
+<p align="center"> 
   <p align="center">
-<a href="https://github.com/Nadilhansaja/ZEROX-A8/fork" target="blank"><img align="center" src="https://i.imgur.com/cxaSEWe.png" alt="Deploy bot" height="112" width="310" /></a>
-  <div>
+  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Bungee+Shade&size=25&pause=1000&background=FF000000&width=435&lines=THIS+IS+ZEROX+MD+𝗩2 ❤️+;ZEROX-+MD-+𝗩2 🎉;CREATED+𝗕Y+NADIL+HANSAJA ✔️" alt="Typing SVG" /></a>
+  </p>
+
+<a><img src='https://i.imgur.com/LyHic3i.gif'/>
+
+<img align="center" height="auto"
+src="https://files.catbox.moe/gld2vo.jpg?"/>
+
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&size=30&pause=1000&color=0000FF&center=true&vCenter=true&width=815&height=60&lines=▇+▇+▇+▇+▇+▇+▇)](https://git.io/typing-svg)
+<br>
+<p align="center"
+  <a href="https://github.com/mwknadil/-EROX-MD">
     
-
-<img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
-
-<p align="center">
-
-<img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
-
-### Contact My Main Owner
- <p align="center">
-
-  <a aria-label="Owner WhatsApp Channel" href="https://wa.me/+94740952053?text=Hey_Nadil_🤍" target="_blank">
-    <img alt="whatsapp" src="https://img.shields.io/badge/WhatsApp Owner-25D366?style=for-the-badge&logo=whatsapp&logoColor=white" />
-  </a>
-
-
-<img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
-
-<h2 align="center"> 
-</h2>
-
-`Thanks To,me 🐼🍓`
-<div align="center">
-    <b>ZEROX-MD USER BOT</b>
-
-
-<div align="left">
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Rubik+Dirt&size=65&pause=1000&color=F72C3F&background=FF20A500&center=true&vCenter=true&width=1000&height=150&lines=ZEROX+MD;WELLCOME+TO;WHATSAPP+BOT" alt="Typing SVG" /></a>   
+  
 </p> 
 
-
-***`WARNING` : `DON'T MODIFY THIS BOT FIRST INFORM THE OWNER`***
-## 👑 **`乙EROX-MD BOT OWNERS,`** 👑
-
+ <p align="center">
+<a href="https://github.com/mwknadil/followers"><img title="Followers" src="https://img.shields.io/github/followers/NadilHansaja?color=purple&style=flat-square"></a>
+<a href="https://github.com/mwknadil/-EROX-MD/stargazers/"><img title="Stars" src="https://img.shields.io/github/stars/mwknadil/ZEROX-MD?color=blue&style=flat-square"></a>
+<a href="https://github.com/mwknadil/-EROX-MD/network/members"><img title="Forks" src="https://img.shields.io/github/forks/mwknadil/ZEROX-MD?color=blue&style=flat-square"></a>
+<a href="https://github.com/mwknadil/-EROX-MD/watchers"><img title="Watching" src="https://img.shields.io/github/watchers/kingmalvn/ZEROX-MD?label=Watchers&color=blue&style=flat-square"></a>
+<a href="https://github.com/mwknadil/-EROX-MD/"><img title="Size" src="https://img.shields.io/github/repo-size/kingmalvn/mwknadil/ZEROX-MD?style=flat-square&color=green"></a>
+<a href="https://hits.seeyoufarm.com"><img src="https://hits.seeyoufarm.com/api/count/incr/badge.svg?url=https%3A%2F%2Fgithub.com%2FZerox%2FMALVIN-XD&count_bg=%2379C83D&title_bg=%23555555&icon=probot.svg&icon_color=%2300FF6D&title=hits&edge_flat=false"/></a>
+<a href="https://github.com/mwknadil/-EROX-MD/graphs/commit-activity"><img height="20" src="https://img.shields.io/badge/Maintained%3F-yes-green.svg"></a>&nbsp;&nbsp;</a>
+<p align="center"><img src="https://profile-counter.glitch.me/{ZEROX-MD}/count.svg" alt="kingmalvn :: Visitor's Count" old_src="https://profile-counter.glitch.me/{Nadil}/count.svg" /></p>
+<p align="center">
+<a href="https://github.com/mwknadil/-EROX-MD"><img title="PUBLIC-BOT" src="https://img.shields.io/static/v1?label=Language&message=English&style=flat-square&color=darkpink"></a> &nbsp;
+  <img src="https://komarev.com/ghpvc/?username=ZEROX-MDD&label=VIEWS&style=flat-square&color=blue" />
 </a>
-<img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
-
-
-   <a href="https://raw.githubusercontent.com/Nadilhansaja/Hello/refs/heads/main/IMG-20250223-WA0019.jpg"><img src="" width=80 height=80></a>   
-
-
-
- </a>
-<img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
-
-       
-
-<img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
-
 <p align="center">
+  <a href="https://github.com/mwknadil/-EROX-MD"><img title="Release" src="https://img.shields.io/badge/Release-beta%20v2.3.1-darkcyan.svg?style=for-the-badge&logo=appveyor" /></a>
+
+<p align='center'>
+    </p>
+<a><img src='https://i.imgur.com/LyHic3i.gif'/>
+
+</details>
+
+<details>
+<summary>ᴠɪᴇᴡ ʙᴏᴛ ᴜᴘᴅᴀᴛᴇᴅ ᴀɴᴅ ɴᴇᴡ ғᴇᴛᴜʀᴇs🍂</summary>
+  
+--------------------------
+- **ᴀɴᴛɪ-ᴅᴇʟᴇᴛᴇ🚀**
+- **ᴀɴᴛɪ-ᴠɪᴇᴡᴏɴᴄᴇ 🚀**
+- **ᴀᴜᴛᴏ-ᴠᴏɪᴄᴇ 🚀**
+- **ᴀᴜᴛᴏ-sᴛɪᴄᴋᴇʀ 🚀**
+- **ᴀʟᴡᴀʏs ᴏɴʟɪɴᴇ /ᴏғғʟɪɴᴇ 🚀**
+- **sᴛᴀᴛᴜs ʀᴇᴘʟʏ 🚀**
+- **ᴀɴᴅ ᴍᴀɴʏ ᴍᴏʀᴇ ᴇɴᴊᴏʏ**
+- © **ᴘᴏᴡᴇʀᴇᴅ ʙʏ ɴᴀᴅɪʟ ʜᴀɴꜱᴀᴊᴀ**
+- **bot updated**
+  
+
+---------
+</details>
+<a><img src='https://i.imgur.com/LyHic3i.gif'/>
 
 
+**How to deploy**
 
+ [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=monospace-ExtraBold&color=blue&lines=🙏+𝗙𝗢𝗥𝗞+𝗔𝗡𝗗+𝗦𝗧𝗔𝗥+⭐+𝗥𝗘𝗣𝗢+⤵️)](https://git.io/typing-svg)
 
-<br>
-<br>
-<br>
-<br>
-<br>
+*_Start by forking this repository to your own GitHub account. Click the button below to fork:_*
 
+  <a href="https://github.com/mwknadil/-EROX-MD/fork"><img title="MALVIN-XD" src="https://img.shields.io/badge/FORK-ZEROX-MDh?color=darkblue&style=for-the-badge&logo=stackshare"></a>
 
-![license](https://img.shields.io/github/license/ZEROXLK/ZEROX-MD?color=green&label=License&style=plastic)
+<a><img src='https://i.imgur.com/LyHic3i.gif'/>
 
-<img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
+   
+🔑 Get Session ID (WhatsApp Pair Code Login)
 
-<p align="center">
+> To deploy, generate your session ID from the link below:
+<p align="left">
+  <a href="https://malvin-pair-code-xzcb.onrender.com/?">
+    <img src="https://img.shields.io/badge/%F0%9F%9A%80%20GET%20PAIR%20CODE%20WEB-ffcc00?style=for-the-badge"/>
+  </a>
+</p>
 
-`Release date:- 2025.03.?`
-<br>
-`latest updated date:- 2025:03.?`
-</a>
-<img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
+<a><img src='https://i.imgur.com/LyHic3i.gif'/>
 
-       
+**Now Deploy to any hosting of ur choice**
 
-<img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=blue&lines=𝗗𝗘𝗣𝗟𝗢𝗬+⤵️+𝗢𝗡+🛰️)](https://git.io/typing-svg)
 
-<p align="center">
-
-<h2> N O T E - B E F O R E - U S I N G !! -SI</h2>
-<ul>
-    <li>🔹 </code>Fork</code> / Use This </code>Template</code> button එක Click කරන්න.</li>
-</ul>
-</a>
-<img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
- 
-<p align="center">
-    <a href="https://github.com/NADIL-HANSAJA">
-        <img title="Author" src="https://img.shields.io/badge/AUTHOR-Nadil%20Hansaja-red.svg?style=for-the-badge&logo=github">
+ src='https://img.shields.io/badge/-Create-purple?style=for-the-badge&logo=heroku&logoColor=white'/></a>
